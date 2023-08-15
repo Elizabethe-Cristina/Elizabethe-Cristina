@@ -1,6 +1,7 @@
 ## Bem-vindo(a) ao perfil da Elizabethe 😁
 
-Tenho 26 anos e estou em transição de carreira.
+Tenho 27 anos e estou em transição de carreira.
+Busco oportunidades pra ingressar no mercado de trabalho.
 
 
 <div>
